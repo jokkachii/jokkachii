@@ -1,4 +1,4 @@
-- 👋 Hello everyone, can call me @jokkachii
+- 👋 Hello everyone, can call me jokkachii or joka or kachii or jok
 - 👀 I’m interested in alot of things
 - 🌱 I’m currently learning how to code (wish me luck XD)
 - 📫 You guys can reach me on discord - Jokkachii#1929
